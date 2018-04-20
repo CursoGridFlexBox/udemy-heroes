@@ -6,4 +6,4 @@
 * Mujer Maravilla
 * Linterna Verde
 * Volcán Negro
-* Atom
+* Atom New
