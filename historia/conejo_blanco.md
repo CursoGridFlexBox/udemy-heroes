@@ -1,0 +1,3 @@
+## Conejo blanco
+
+El Conejo Blanco es un personaje ficticio del libro Las aventuras de Alicia en el país de las maravillas, escrito por Lewis Carroll. Aparece al principio del libro, en el capítulo uno, vistiendo un chaleco, y murmurando que llega demasiado tarde a su destino. Es entonces cuando Alicia lo sigue hasta la madriguera que lleva hasta el País de las Maravillas. Alicia se reencuentra con él más adelante, cuando este la confunde con su criada Mary Ann y la envía hasta su casa para hacer una búsqueda. Es entonces cuando Alicia bebe de una botella que la hace crecer demasiado, hasta tal punto que queda atrapada en la casa del Conejo. Este personaje vuelve a aparecer en los últimos capítulos, como heraldo del Rey y de la Reina de Corazones.
