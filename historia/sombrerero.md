@@ -1,0 +1,3 @@
+## Historia del Sombrerero Loco
+
+El Sombrerero es un personaje de la novela Las aventuras de Alicia en el país de las maravillas, del escritor inglés Lewis Carroll. Este personaje también se conoce como el Sombrerero Loco, aunque en la obra de Carroll nunca se le llama así. La confusión probablemente proviene del hecho de que el Gato de Cheshire le advierte a Alicia que el Sombrerero está loco, lo cual se confirma por la conducta excéntrica del Sombrerero; además, el capítulo donde aparece el Sombrerero se titula "Una merienda de locos". El Sombrerero aparece nuevamente en la secuela de la obra, llamada A través del espejo y lo que Alicia encontró allí, con el nombre Hatta,1​ uno de los mensajeros del Rey Blanco.
